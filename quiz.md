@@ -14,7 +14,7 @@ Dogs
 
 ###What would constitute a “perfect” day for you?
 
-Your answer goes here
+Good night sleep, great friends, fantastic food, amazing conversation and some totally tubular tomfoolery!
 
 ###Given the choice of anyone in the world, whom would you want as a dinner guest?
 
