@@ -2,15 +2,15 @@
 
 ###What is your name?
 
-Reyna
+Patrick
 
 ###What is your favorite color?
 
-Your answer goes here
+Silver
 
 ###Cats or Dogs?
 
-Your answer goes here
+Dogs
 
 ###What would constitute a “perfect” day for you?
 
