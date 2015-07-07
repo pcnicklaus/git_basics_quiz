@@ -18,4 +18,4 @@ Good night sleep, great friends, fantastic food, amazing conversation and some t
 
 ###Given the choice of anyone in the world, whom would you want as a dinner guest?
 
-Your answer goes here
+Gumby, because who doesn't want to meet such a flexible guy?
